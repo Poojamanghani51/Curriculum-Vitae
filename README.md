@@ -1,2 +1,2 @@
-#cv image
-https://www.freepik.com/free-photo/front-view-elegant-businesswoman-pointing-right_11512691.htm#query=working%20girl&position=34&from_view=keyword
+https://drive.google.com/drive/mobile/folders/1gAlP0oW7FRFveudmnflQlUzQPRh4Fm2p?usp=sharing
+https://drive.google.com/drive/mobile/folders/1gAlP0oW7FRFveudmnflQlUzQPRh4Fm2p?usp=sharinghttps://drive.google.com/drive/mobile/folders/1gAlP0oW7FRFveudmnflQlUzQPRh4Fm2p?usp=sharing
